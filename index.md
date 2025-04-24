@@ -35,6 +35,7 @@
 * Друго издање можете наћи [кликом овде](https://www.instagram.com/blokada_fink/p/DH-oHX8tvW4/).
 * Треће издање можете наћи [кликом овде](https://www.instagram.com/blokada_fink/p/DIQ7JN0tVhh/).
 * Четврто издање можете наћи [кликом овде](https://www.instagram.com/blokada_fink/p/DIlX8UmtfQD/).
+* Пето издање можете наћи [кликом овде](https://www.instagram.com/blokada_fink/p/DI2DXpgtEKK/).
 
 ### Корисне инфромације
 
